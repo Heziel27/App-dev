@@ -7,4 +7,4 @@
 
 [My Name](https://myasiantv.ac/show/nemesis)
 
- 	![She wants to desperately take revenge](My Name.jpg)
+![She wants to desperately take revenge](My Name.jpg)
